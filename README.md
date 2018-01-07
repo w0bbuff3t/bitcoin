@@ -4,4 +4,4 @@ Fighting for the oppressed.
 
 Rallying the forgotten.
 
-Viva le wob.
+Viva la wob.
